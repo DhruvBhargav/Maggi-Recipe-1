@@ -1,0 +1,1 @@
+First boil the Water for 1 minute.Then add the Maggi Masala and noodlesin the packet.Then boil it for 1 minute.Serve it hot in the bowl.
